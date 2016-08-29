@@ -8,4 +8,4 @@
 
 [영상](https://www.youtube.com/watch?v=iAAZSjMWG80)
 
-![국정원](https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fwww.nis.go.kr%2Fresources%2Fimg%2Fcontent-img%2Fimg-nis08-01.png "앙기모띠.")(https://www.youtube.com/watch?v=iAAZSjMWG80)
+![국정원](https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fwww.nis.go.kr%2Fresources%2Fimg%2Fcontent-img%2Fimg-nis08-01.png "앙기모띠.")[앙](https://www.youtube.com/watch?v=iAAZSjMWG80)
