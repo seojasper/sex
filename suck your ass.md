@@ -8,4 +8,4 @@
 
 [영상](https://www.youtube.com/watch?v=iAAZSjMWG80)
 
-![세피로트](https://cdn.namu.wiki/r/http%3A%2F%2Fi.imgur.com%2F2megHz2.png "앙기모띠.")
+![국정원](https://image-proxy.namuwikiusercontent.com/r/http%3A%2F%2Fwww.nis.go.kr%2Fresources%2Fimg%2Fcontent-img%2Fimg-nis08-01.png "앙기모띠.")
